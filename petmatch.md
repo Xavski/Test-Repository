@@ -25,3 +25,21 @@ Tatenda is looking to adopt only 1 dog and up to 4 goldfish.
 **Do I have any other pets, or have I had any**
 
 Tatenda has not owned any other pets previously.
+
+# Xaviour's Pet Owner Profile
+**What kind of pet owner am I?**
+
+A current pet owner with three cats, and two dogs. I am a caring pet owner that spends alot of time playing and petting my cute animals. I don't mind the size of the animal as I've taken care of deers, dogs, cats, birds and fish throughout my life. No matter what animal needs taken care of I am able to supply the affection and love the animal needs.
+
+**What kind of Pet(s) am I looking for?**
+* Type: Dog
+* Age: Newborn
+* Size: Large
+
+**How many pets am I looking for?**
+
+I'm looking for a Large dog, any breed since i've had small ones in the past I want to experience something different. 
+
+**Do I have any other pets, or have I had any**
+
+I have two dogs and three cats.
